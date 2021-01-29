@@ -2,4 +2,4 @@
 - When do you do notes in `Preply`?
 - Can we add words to my vocabulary?
 - Tear off, why clothes
-- Not pronounced T. What(ep 6, 40:33), Can'T, thaT, laTer (ep. 6, 14:06)
+- Not pronounced T. What(ep 6, 40:33), Can'T (ep2, 34:11), thaT, laTer (ep. 6, 14:06)
